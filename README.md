@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any repositories, projects where I can contribute using my skills and experience
 - 📫 How to reach me: Linkedin- www.linkedin.com/in/obideyi-heritage, WhatsApp- +2349066178050
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I engage in my fantasies a lot, and i love good food
+- ⚡ Fun fact: I engage in my fantasies a lot, and I love good food
 
 <!---
 Rittie-y/Rittie-y is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

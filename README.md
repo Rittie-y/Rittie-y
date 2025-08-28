@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rittie-y
-- 👀 I’m interested in the Data Space and Creative Writing Space
-- 🌱 I’m currently learning Data Analytical skills, focusing on MS Excel and Power BI 
+- 👀 I’m interested in the Data Space and Creative Writing 
+- 🌱 I’m a Data Analyst| Skilled in Excel, Power BI | Passionate about turning data into insights
 - 💞️ I’m looking to collaborate on any repositories, projects where I can contribute using my skills and experience
 - 📫 How to reach me: Linkedin- www.linkedin.com/in/obideyi-heritage, WhatsApp- +2349066178050
 - 😄 Pronouns: She/Her
